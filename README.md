@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @256po
 - 👀 I’m a  student of everyday 
-- 🌱 I’m commited to sschedules and a good time manager 
+- 🌱 I’m commited to schedules and a good time manager 
 - 💞️ I’m a good team player 
 - 📫 How to reach me ...https://github.com/256po /paul.bewayo4@gmail.com 
 
